@@ -1,0 +1,2 @@
+# premium-diptych-dial-001-ivory-diptych-dial-hinge-and-g
+Tired of losing track of your diptych dial dimensions and string lengths across scattered notes and spreadsheets? The Ivory Diptych Dial Hinge and Gnomon String Planner brings every component of your sundial project into one cohesive Notion workspace.  This template eliminates the chaos of juggling multiple design iterations, hinge tolerances, and
